@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rafas09
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning: Desenvolvimento de Sistemas
 - 💞️ I’m looking to collaborate on: já estou casada
 - 📫 How to reach me: Mensagens
 - 😄 Pronouns: ela/dela
