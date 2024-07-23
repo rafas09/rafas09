@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @rafas09
-- 👀 I’m interested in ...
+- 👋 Hi, I’m Rafaella F Monteiro
+- 👀 I’m interested in: Progamação
 - 🌱 I’m currently learning: Desenvolvimento de Sistemas
-- 💞️ I’m looking to collaborate on: já estou casada
+- 💞️ I’m looking to collaborate on: Determinação, Foco e Confiança
 - 📫 How to reach me: Mensagens
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: Ler,Jogar e Estudar 
